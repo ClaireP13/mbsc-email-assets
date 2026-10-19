@@ -1,0 +1,1 @@
+# mbsc-email-assets
